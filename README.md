@@ -95,4 +95,4 @@ Competitive salary and benefits package.
 Diverse team building and employee activities.
 Good career development opportunities and promotion space.
 Front-line projects and challenging work tasks in the technology field.
-If you are interested in joining our team, please send your resume and personal introduction to ChengshiAlexander@ailepupower and we will contact you as soon as possible.
+If you are interested in joining our team, please send your resume and personal introduction to ChengshiAlexander@ailepupower.com and we will contact you as soon as possible.
