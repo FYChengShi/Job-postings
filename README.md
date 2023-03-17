@@ -19,16 +19,6 @@ Proficient in at least one programming language, such as Java, Python, C++, etc.
 Familiar with cloud computing, databases, networks, and security-related technologies.
 Able to think independently and solve problems, with good communication and teamwork skills.
 Strong English reading and writing skills, able to read and write technical documentation.
-Benefits:
-
-Competitive salary and benefits package.
-Diverse team building and employee activities.
-Good career development opportunities and promotion space.
-Front-line projects and challenging work tasks in the technology field.
-If you are interested in joining our team, please send your resume and personal introduction to ChengshiAlexander@ailepupower.com and we will contact you as soon as possible.
-
-
-
 
 
 
@@ -53,19 +43,6 @@ Familiar with electronic design software, such as Altium Designer, Eagle, etc.
 Good understanding of electronics manufacturing processes and testing methods.
 Strong communication and collaboration skills, able to work effectively in a team environment.
 Excellent English reading and writing skills, able to read and write technical documentation.
-Benefits:
-
-Competitive salary and benefits package.
-Diverse team building and employee activities.
-Good career development opportunities and promotion space.
-Front-line projects and challenging work tasks in the technology field.
-If you are interested in joining our team, please send your resume and personal introduction to ChengshiAlexander@ailepupower.com and we will contact you as soon as possible.
-
-
-
-
-
-
 
 
 Embedded Engineer
